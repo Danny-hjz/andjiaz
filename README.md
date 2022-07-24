@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @andjiaz
-- 👀 I’m interested in Djmix，EDM and coding！
+- 👀 I’m interested in Internet ！
 - 📫 How to reach me : andjiaz0825@gmail.com
 
 <!---
